@@ -2,7 +2,7 @@
 - 👀 I’m interested in ai, app developement and cryptocurrency
 - 🌱 I’m currently learning alot lol
 - 💞️ I’m looking to collaborate on DOA, p2p infrastructure developement
-- 📫 How to reach me adonai.el777@gmail.com
+- 📫 How to reach me saxiorxl999@duck.com
 - 
 
 <!---
